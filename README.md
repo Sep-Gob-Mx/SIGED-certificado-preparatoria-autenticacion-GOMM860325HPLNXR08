@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOMM860325HPLNXR08
+GOMM860325HPLNXR08
